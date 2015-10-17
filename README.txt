@@ -1,3 +1,3 @@
-Josh Nahum
+JOSH NAHUM
 
-Has awesome script.
+Has AWESOME script.
