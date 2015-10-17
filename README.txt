@@ -1,3 +1,3 @@
-JOSH NAHUM!
+JOSHUA NAHUM!
 
 Has AWESOME script.!
