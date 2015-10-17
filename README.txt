@@ -1,1 +1,3 @@
-Hi I'm Josh
+Josh Nahum
+
+Has awesome script.
